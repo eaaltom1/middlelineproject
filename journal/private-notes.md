@@ -1,1 +1,0 @@
-# Middleline Journal
